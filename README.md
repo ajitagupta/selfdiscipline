@@ -30,7 +30,7 @@ Building your brain and keeping your mind healthy is critical but it doesn't hav
 * You must read as much positive and inspirational material as you can. Your brain craves new ideas and stimulation and reading is one of the best ways to explore them.
 * Exercise. Exercise helps to reduce stress along with boosting positivity, aiding self-esteem and even improving cognitive thinking. All it takes is 30 min of exercise a couple of times a week to start to see results!
 * Practice positive affirmations. Research has shown that through this simple act of making positive statements about yourself to yourself you can reprogram your brain to overcome unhealthy habits and control harmful emotions. The most powerful affirmation is "I like myself". The more you like yourself the more you like the people around you the more you like your work  the more you like your activities and the more open-minded and optimistic you are.
-* Create easy good habits that you genuinely enjoy doing and that are there to catch you in case of failure.
+* Create easy good habits that you genuinely enjoy doing and that are there to catch you in case of failure
 * Find your weaknesses to avoid getting distracted, falling into traps and maintaining control.
-* Forgive yourself - give yourself a second chance to succeed.
+* Forgive yourself - give yourself a second chance to succeed
 * Eat healthy foods. Many people experience positive mental health when they eliminate saturated fats and sugar from their diet.
