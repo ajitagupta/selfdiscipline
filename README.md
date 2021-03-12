@@ -1,6 +1,6 @@
 # How to Build Unbreakable Self-Discipline
 
-Self-discipline is the ability to make yourself do what you should do whether you feel like it or not. Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill.
+Self-discipline is the ability to make yourself do what you can do, you should do whether you feel like it or not. What all high achievers have in common is self-discipline. Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
 
 To accomplish a greater goal you have to step outside your comfort zone. Practice tolerating small amounts of discomfort. Small sacrifices add up creating strength in the face of temptation. Your self-discipline will grow. Your tolerance for discomfort will improve and you will take steps towards your ultimate goal.
 
@@ -15,3 +15,9 @@ Clarity is the most important single quality of goal-setting and perhaps the mos
 What is one critical task that you've been putting off? And what will you do today to start working on it? Tons of time management hacks and strategies have been developed over the years to help you get more done in less time. We look at the one formulated by success expert, author and speaker, Brian Tracy.
 
 Plan each day in advance. Take time each morning to address your major goals and then write out a list of things you need to do that day in order to get closer to those goals. Set priorities on each item so that you don't skip your most important tasks. Then, get to it! Come fully prepared for each task you work on. This way you won't have to get up and move until the task is done. Break down the task in its constituent parts, each taking an identifiable amount of time to complete, before you begin. This will define a good starting point. Focus on the difficult and daunting tasks first. Take one small step to get started. When you select a small piece of the task and then discpline yourself to do it it will often give you the momentum you need to counter inertia and stop procrastinating. Take action and take action now!
+
+## Purpose
+
+What will you use your newfoudn self-discipline to achieve this year? The most successful people maintain aim and purpose. They focus all of their energy on their highest-priority tasks. They don't waste time on unproductive activities.
+
+While it may seem like a superhuman feat successful men and women have simply capitalized on their self-discipline by remembering their "Why", the underlying reasons why they are working so tirelessly toward their goal. Every now and then ask yourself: "What will my life look like after I complete this goal?". When you remember why you are working so hard it becomes much easier to stay focussed. Visualize yourself as a success. Reflect on the impact you hope to make. Imagine what it will feel like to be victorious.
