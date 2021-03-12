@@ -22,4 +22,8 @@ What will you use your newfound self-discipline to achieve this year? The most s
 
 While it may seem like a superhuman feat successful men and women have simply capitalized on their self-discipline by remembering their "Why", the underlying reasons why they are working so tirelessly toward their goal. Every now and then ask yourself: "What will my life look like after I complete this goal?". When you remember why you are working so hard it becomes much easier to stay focussed. Visualize yourself as a success. Reflect on the impact you hope to make. Imagine what it will feel like to be victorious. Strive for the life you've always wanted.
 
+## Keep your Mind Healthy
 
+What do you do to keep your mind healthy? 
+
+While it may seem like a superhuman feat successful men and women have simply capitalized on their self-discipline by remembering their "Why", the underlying reasons why they are working so tirelessly toward their goal. Every now and then ask yourself: "What will my life look like after I complete this goal?". When you remember why you are working so hard it becomes much easier to stay foc
