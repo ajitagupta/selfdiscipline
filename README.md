@@ -1,6 +1,6 @@
 # How to Build Unbreakable Self-Discipline
 
-Self-discipline is an incredibly useful skill that keeps you motivated, clear-headed and focussed on your objective. Self-discipline is the ability to make yourself do what you can do, you should do whether you feel like it or not. What all high achievers have in common is self-discipline. Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
+Self-discipline is an incredibly useful skill that keeps you motivated, clear-headed and focussed on your objective. Self-discipline is the ability to make yourself do what you can do, you should do whether you feel like it or not. Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
 
 Note: This post is heavily inspired by [Brian Tracy](https://www.youtube.com/user/BrianTracySpeaker)'s work.
 
@@ -18,18 +18,18 @@ Plan each day in advance. Take time each morning to address your major goals and
 
 ## Purpose
 
-What will you use your newfound self-discipline to achieve this year? The most successful people maintain aim and purpose. They focus all of their energy on their highest-priority tasks. They don't waste time on unproductive activities.
+What will you use your newfound self-discipline to achieve this year? The most successful people maintain aim and purpose.
 
-While it may seem like a superhuman feat successful men and women have simply capitalized on their self-discipline by remembering their "Why", the underlying reasons why they are working so tirelessly toward their goal. If you want to build self-discipline you need a powerful reason why. Helping others might be a lifelong motivator that you're looking for. Every now and then ask yourself: "What will my life look like after I complete this goal?". When you remember why you are working so hard it becomes much easier to stay focussed. Visualize yourself as a success. Reflect on the impact you hope to make. Imagine what it will feel like to be victorious. Strive for the life you've always wanted.
+While it may seem like a superhuman feat successful men and women have simply capitalized on their self-discipline by remembering their "Why", the underlying reasons why they are working so tirelessly toward their goal. If you want to build self-discipline you need a powerful reason why. For instance, helping others might be a lifelong motivator that you're looking for. Every now and then ask yourself: "What will my life look like after I complete this goal?". When you remember why you are working so hard it becomes much easier to stay focussed. Visualize yourself as a success. Reflect on the impact you hope to make. Imagine what it will feel like to be victorious. Strive for the life you've always wanted.
 
 ## Keep your Mind Healthy
 
-Your mind will make you rich or poor depending on the usage your put to it. Maintaining a healthy mind is essential for improving your productivity, strengthening your personal and professional relationships and realizing your best self. Most people fail to devote any time to actively seeking out ways to improve their mental fitness. What are you doing today to keep your brain healthy and active? 
+Your mind will make you rich or poor depending on the usage you put to it. Maintaining a healthy mind is essential for improving your productivity, strengthening your personal and professional relationships and realizing your best self. Most people fail to devote any time to actively seeking out ways to improve their mental fitness. What are you doing today to keep your brain healthy and active? 
 
-Building your brain and keeping your mind healthy is critical but it doesn't have to be complicated.
-* You must read as much positive and inspirational material as you can. Your brain craves new ideas and stimulation and reading is one of the best ways to explore them.
+Building your brain and keeping your mind healthy is critical but it doesn't have to be complicated. Just follow these steps below:
+* Read as much positive and inspirational material as you can. Your brain craves new ideas and stimulation and reading is one of the best ways to explore them.
 * Exercise. Exercise helps to reduce stress along with boosting positivity, aiding self-esteem and even improving cognitive thinking. All it takes is 30 min of exercise a couple of times a week to start to see results!
-* Practice positive affirmations. Research has shown that through this simple act of making positive statements about yourself to yourself you can reprogram your brain to overcome unhealthy habits and control harmful emotions. The most powerful affirmation is "I like myself". The more you like yourself the more you like the people around you the more you like your work  the more you like your activities and the more open-minded and optimistic you are.
+* Practice positive affirmations. Research has shown that through this simple act of making positive statements about yourself to yourself you can reprogram your brain to overcome unhealthy habits and control harmful emotions. The most powerful affirmation is "I like myself". The more you like yourself the more you like the people around you the more you like your work the more you like your activities and the more open-minded and optimistic you are.
 * Create easy good habits that you genuinely enjoy doing and that are there to catch you in case of failure
 * Find your weaknesses to avoid getting distracted, falling into traps and maintaining control.
 * Forgive yourself - give yourself a second chance to succeed
