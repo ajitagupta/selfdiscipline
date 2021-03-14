@@ -1,8 +1,8 @@
 # How to Build Unbreakable Self-Discipline
 
-Self-discipline is an incredibly useful skill that keeps you motivated, clear-headed and focussed on your objective. Self-discipline is the ability to make yourself do what you can do, you should do whether you feel like it or not. Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
+Self-discipline is an incredibly useful skill that keeps you motivated, clearheaded and focussed on your objective. Self-discipline is the ability to make yourself do what you can do, you should do whether you feel like it or not. Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
 
-Note: This post is heavily inspired by [Brian Tracy](https://www.youtube.com/user/BrianTracySpeaker)'s work.
+Note: This post is heavily inspired by [Brian Tracy](https://www.youtube.com/user/BrianTracySpeaker)'s work. I recommend reading his bestseller book [Eat That Frog](https://www.amazon.com/Eat-That-Frog-Great-Procrastinating/dp/162656941X/ref=sr_1_1?crid=18KI8AZAL3FQU&dchild=1&keywords=eat+that+frog&qid=1615728616&s=books&sprefix=eat+that+frog%2Caps%2C-1&sr=1-1).
 
 ## Goal-Setting and Clarity
 
