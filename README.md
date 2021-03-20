@@ -2,7 +2,7 @@
 
 > Self-discipline is the ability to make yourself do what you can do, you should do whether you feel like it or not.<br>
 > 
-*Elbert Hubbard*<br>
+Elbert Hubbard<br>
 
 Self-discipline is an incredibly useful skill that keeps you motivated, clearheaded and focussed on your objective. Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
 
