@@ -1,10 +1,9 @@
 # How to Build Unbreakable Self-Discipline
 
-Self-discipline is an incredibly useful skill that keeps you motivated, clearheaded and focussed on your objective.
-> Self-discipline is the ability to make yourself do what you can do, you should do whether you feel like it or not.
-ELBERT HUBBARD
+> Self-discipline is the ability to make yourself do what you can do, you should do whether you feel like it or not.<br>
+Elbert Hubbard<br>
 
-Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
+Self-discipline is an incredibly useful skill that keeps you motivated, clearheaded and focussed on your objective. Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
 
 Note: This post is heavily inspired by [Brian Tracy](https://www.amazon.com/No-Excuses-Brian-Tracy-audiobook/dp/B003MSCSHA/ref=sr_1_1?dchild=1&keywords=no+excuses&qid=1615837273&sr=8-1)'s work. I recommend reading his book [The 21 Success Secrets of Self-Made Millionaires](https://www.amazon.com/Success-Secrets-Self-Made-Millionaires-Independence/dp/1442962593/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1616277200&sr=8-3).
 
