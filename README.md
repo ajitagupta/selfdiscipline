@@ -1,6 +1,10 @@
 # How to Build Unbreakable Self-Discipline
 
-Self-discipline is an incredibly useful skill that keeps you motivated, clearheaded and focussed on your objective. Self-discipline is the ability to make yourself do what you can do, you should do whether you feel like it or not. Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
+Self-discipline is an incredibly useful skill that keeps you motivated, clearheaded and focussed on your objective.
+> Self-discipline is the ability to make yourself do what you can do, you should do whether you feel like it or not.
+ELBERT HUBBARD
+
+Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
 
 Note: This post is heavily inspired by [Brian Tracy](https://www.amazon.com/No-Excuses-Brian-Tracy-audiobook/dp/B003MSCSHA/ref=sr_1_1?dchild=1&keywords=no+excuses&qid=1615837273&sr=8-1)'s work. I recommend reading his book [The 21 Success Secrets of Self-Made Millionaires](https://www.amazon.com/Success-Secrets-Self-Made-Millionaires-Independence/dp/1442962593/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1616277200&sr=8-3).
 
@@ -14,7 +18,7 @@ Clarity is the most important single quality of goal-setting and perhaps the mos
 
 What is one critical task that you've been putting off? And what will you do today to start working on it? Tons of time management hacks and strategies have been developed over the years to help you get more done in less time. We look at the one formulated by success expert, author and speaker, Brian Tracy.
 
-Plan each day in advance. Take time each morning to address your major goals and then write out a list of things you need to do that day in order to get closer to those goals. Set priorities on each item so that you don't skip your most important tasks. Then, get to it! Come fully prepared for each task you work on. This way you won't have to get up and move until the task is done. Break down the task in its constituent parts, each taking an identifiable amount of time to complete, before you begin. This will define a good starting point. Focus on the difficult and daunting tasks first. Take one small step to get started. When you select a small piece of the task and then discpline yourself to do it it will often give you the momentum you need to counter inertia and stop procrastinating. Use rewards to look forward to. Build a routine around your goals. Take action and take action now!
+Plan each day in advance. Take time each morning to address your major goals and then write out a list of things you need to do that day in order to get closer to those goals. Set priorities on each item so that you don't skip your most important tasks. Then, get to it! Come fully prepared for each task you work on. This way you won't have to get up and move until the task is done. Break down the task in its constituent parts, each taking an identifiable amount of time to complete, before you begin. This will define a good starting point. Focus on the difficult and daunting tasks first. Take one small step to get started. When you select a small piece of the task and then discpline yourself to do it it will often give you the momentum you need to counter inertia and stop procrastinating. Push yourself to keep working at the job until it is done. Use rewards to look forward to. Build a routine around your goals. Take action and take action now!
 
 ## Purpose
 
