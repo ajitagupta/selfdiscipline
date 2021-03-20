@@ -34,3 +34,5 @@ Building your brain and keeping your mind healthy is critical but it doesn't hav
 * Find your weaknesses to avoid getting distracted, falling into traps and maintaining control.
 * Forgive yourself - give yourself a second chance to succeed
 * Eat healthy foods. Many people experience positive mental health when they eliminate saturated fats and sugar from their diet.
+
+Practice self-discipline, self-mastery, and self-control. Be willing to pay the price today in order to enjoy the rewards of a better future tomorrow.
