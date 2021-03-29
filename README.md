@@ -22,7 +22,7 @@ Plan each day in advance. Take time each morning to address your major goals and
 
 ## Purpose
 
-What will you use your newfound self-discipline to achieve this year? The most successful people maintain aim and purpose.
+Napoleon Hill wrote, after twenty-two years of research into the wealthiest people in America, that all great success began with a "major definite purpose".
 
 While it may seem like a superhuman feat successful men and women have simply capitalized on their self-discipline by remembering their "Why", the underlying reasons why they are working so tirelessly toward their goal. If you want to build self-discipline you need a powerful reason why. Discipline yourself to do only those tasks that enrich and enhance your life and work and that give you a feeling of forward motion toward achieving the things you want and becoming the kind of person you want to be.
 
