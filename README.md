@@ -6,13 +6,13 @@ Elbert Hubbard, *American philosopher*<br>
 
 Self-discipline is an incredibly useful skill that keeps you motivated, clearheaded and focussed on your objective. Nothing great is really achieved without it. Luckily, self-discipline is a skill that can be learnt and cultivated with continuous practice. Until it becomes automatic, just like any other skill. If you keep showing up you will be amazed at what you can accomplish in a week, a month or a year.
 
-Note: This post is heavily inspired by [Brian Tracy](https://www.amazon.com/No-Excuses-Brian-Tracy-audiobook/dp/B003MSCSHA/ref=sr_1_1?dchild=1&keywords=no+excuses&qid=1615837273&sr=8-1)'s work. I recommend reading his book [The 21 Success Secrets of Self-Made Millionaires](https://www.amazon.com/Success-Secrets-Self-Made-Millionaires-Independence/dp/1442962593/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1616277200&sr=8-3).
+Note: This post is greatly inspired by [Brian Tracy](https://www.amazon.com/No-Excuses-Brian-Tracy-audiobook/dp/B003MSCSHA/ref=sr_1_1?dchild=1&keywords=no+excuses&qid=1615837273&sr=8-1)'s work. I recommend reading his book [The 21 Success Secrets of Self-Made Millionaires](https://www.amazon.com/Success-Secrets-Self-Made-Millionaires-Independence/dp/1442962593/ref=tmm_pap_swatch_0?_encoding=UTF8&qid=1616277200&sr=8-3).
 
 ## Goal-Setting and Clarity
 
 Your problem is to bridge the gap between where you are now and the goals you intend to reach. You need goals for your health, your career, your finances, your relationships, your personal and professional development and your community and spiritual growth.
 
-Clarity is the most important single quality of goal-setting and perhaps the most important single quality of success. Instead of fuzzy goals like more money, better health and happiness be specific about exactly how much money you want to earn in a specific period of time or what level of health, fitness or weight that you desire. The more comprehensive your list, the more motivated you will become, the more intense will be your desire, the more you will believe it is possible. The 80/20 rule says 80% of your results will come from 20% of your activities. Use this rule to organize your list by priority, sequence and deadlines. Think and talk about all the different steps that you can take to make that goal a reality. This exercise will stimulate your creativity, increase your energy and unlock more and more of your potential.
+Clarity is the most important single quality of goal-setting and perhaps the most important single quality of success. Instead of fuzzy goals like more money, better health and happiness be specific about exactly how much money you want to earn in a specific period of time or what level of health, fitness or weight that you desire. The more comprehensive your list, the more motivated you will become, the more intense will be your desire, the more you will believe it is possible. The 80/20 rule says 80% of your results will come from 20% of your activities. Use this rule to organize your list by priority, sequence and deadlines. Define metrics and monitor your progress. Think and talk about all the different steps that you can take to make that goal a reality. This exercise will stimulate your creativity, increase your energy and unlock more and more of your potential.
 
 ## The Enemy of Productivity: Procrastination
 
@@ -24,7 +24,8 @@ Plan each day in advance. Take time each morning to address your major goals and
 
 What will you use your newfound self-discipline to achieve this year? The most successful people maintain aim and purpose.
 
-While it may seem like a superhuman feat successful men and women have simply capitalized on their self-discipline by remembering their "Why", the underlying reasons why they are working so tirelessly toward their goal. If you want to build self-discipline you need a powerful reason why. For instance, helping others might be a lifelong motivator that you're looking for. Every now and then ask yourself: "What will my life look like after I complete this goal?". When you remember why you are working so hard it becomes much easier to stay focussed. Visualize yourself as a success. Reflect on the impact you hope to make. Imagine what it will feel like to be victorious. Strive for the life you've always wanted.
+While it may seem like a superhuman feat successful men and women have simply capitalized on their self-discipline by remembering their "Why", the underlying reasons why they are working so tirelessly toward their goal. If you want to build self-discipline you need a powerful reason why. Discipline yourself to do only those tasks that enrich and enhance your life and work and that give you a feeling of forward motion toward achieving the things you want and becoming the kind of person you want to be.
+
 
 ## Keep your Mind Healthy
 
